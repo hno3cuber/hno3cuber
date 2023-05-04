@@ -1,4 +1,4 @@
-
+<img src="https://count.getloli.com/get/@:hno3">
 
 ## 硝酸
 
